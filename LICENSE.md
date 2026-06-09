@@ -1,4 +1,4 @@
-
+Instantâneo Deadlock trapaça mira é o melhor Deadlock trapaça mira com sem recuo e teletransporte. Seguro, confiável e otimizado para máximo desempenho.
 
 
 
